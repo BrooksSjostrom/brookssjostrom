@@ -1,2 +1,0 @@
-# BrooksSjostrom.com
-personal website
